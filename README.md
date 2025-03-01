@@ -1,4 +1,4 @@
 # HMS
 My HMS
 <br>
-Author- Pranish Limbu
+Author- Pranish Samsohang123
